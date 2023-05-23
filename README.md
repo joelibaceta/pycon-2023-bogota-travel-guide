@@ -44,11 +44,51 @@ This innitiative aims to help you make the most of your experience at PyCon 2023
 ## Recommended Accommodations ( Near to venue )
 
 **ibis budget Bogota**
-- 3 starts
+- 3 stars
+- Cra. 8 #Calle 49-49 Chapinero
 - https://goo.gl/maps/kMv7ATwuwDPQi8qq6
 
+**Radisson Bogota Metrotel**
+- 4 stars
+- Cl. 74 #13-27
+- https://goo.gl/maps/UgNd3tksoq298AUr7
+
+**Selina Chapinero Bogota**
+- Coliving / Hostel
+- Cl. 74 # 15-60 Chapinero
+- https://goo.gl/maps/EmHKs4n83UMystVp8
 
 
 ## Must-Try Restaurants
 
+### Storia D´Amore
+
+Inspired by Italian culture and the romantic history of the young married owners, this restaurant, born in Cali, aims to provide diners with an inspiring experience. With dishes crafted artisanally, they pay attention to the traditions of Italian cuisine in a modern, spacious, and versatile setting.
+
+- Zona T  Carrera 13 #82-36 
+- Piazza By Storia de  Amore  Cl. 122 #15a-24
+
+### Ushin Japannese and Grill
+
+On the 14th floor of the Grand Hyatt Bogotá hotel, Ushin offers an innovative concept that combines Japanese cuisine with charcoal-grilled Binchotan meats, creatively presented. Not only does the restaurant tantalize your taste buds, but it also provides a spectacular city view that will leave you in awe.
+
+Calle 24 A  #57 -60
+
+### El Cielo
+
+Elcielo restaurant offers a unique culinary experience where all the senses are engaged from the first bite. Blending avant-garde techniques with traditional Colombian cooking, the menu is divided into gastronomic moments that evoke emotions through flavors, aromas, and textures. With a focus on Colombian ingredients and talented local chefs, Elcielo aims to share the essence of Colombian cuisine with diners, creating a memorable and sensory-rich dining adventure.
+
+Calle 70 # 4 – 47
+
+### La Fragatta Giratorio
+
+This seafood restaurant is another city classic, boasting over 50 years of tradition. With its unique 360° rotating view, it offers an extraordinary dining experience that allows you to savor delicious dishes while enjoying a complete perspective of the city. This feature has made it a highly sought-after venue for celebrations and social gatherings.
+
+Calle 100 # 8A – 55
+
+### Marie Antoinette
+
+This French-inspired restaurant pays homage to the rebellious, extravagant, and glamorous spirit of Marie Antoinette. Every corner reflects her personality, creating a restaurant filled with unique experiences and fun. If you're looking for a themed and funny dining option, this restaurant is a great choice.
+
+Centro Comercial Atlantis, 4to Piso · Calle 81 #13-05
 
