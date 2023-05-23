@@ -40,7 +40,7 @@ This innitiative aims to help you make the most of your experience at PyCon 2023
 
 - **[Teatro Colón](/top-attractions.md#teatro-colón)** Catch a performance at Teatro Colón, Bogotá's historic theater. Experience the rich cultural scene of the city, from ballet and opera to theater and music concerts.
 
-- **[Botanic Garden]** 
+- **Botanic Garden** 
 The Bogotá Botanical Garden, founded in 1955, is a cherished space for both locals and tourists. It showcases diverse plant collections, including native and exotic species, while promoting conservation, education, and scientific research. Visitors can enjoy themed gardens, greenhouses, educational activities, and immerse themselves in the beauty of Colombia's natural heritage.
 
 
