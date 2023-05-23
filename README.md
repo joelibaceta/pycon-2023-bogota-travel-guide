@@ -92,3 +92,39 @@ This French-inspired restaurant pays homage to the rebellious, extravagant, and 
 
 Centro Comercial Atlantis, 4to Piso · Calle 81 #13-05
 
+### Omnia
+
+Omnia is an Asian-themed restaurant with captivating decor that transports you to the Far East. The gastronomic concept of Omnia focuses on the diversity of Asian cuisine, particularly from China and Japan. We aim to evoke the vibrant street food scenes of these countries and introduce the flavors enjoyed in everyday meals. Additionally, we incorporate elements of Colombian gastronomy, offering diners the opportunity to taste surprising flavors accompanied by a sensory experience that will undoubtedly leave a lasting impression on their minds and hearts.
+
+Calle 81 #13-05
+
+## Experiences and Interesting Activities
+
+- **Ciclovía:** On Sundays and public holidays, Bogotá's main streets transform into a cyclist's paradise during the Ciclovía. Rent a bike or simply stroll along the car-free roads, enjoying outdoor activities, street performances, and a vibrant atmosphere.
+
+- **Maloka Interactive Center:** If you're traveling with children or have a curious mind, don't miss the Maloka Interactive Center. This science museum offers hands-on exhibits, interactive displays, and educational experiences for all ages.
+
+- **Eat cookies in LaGaliet:**
+A place founded four years ago and is about to open its third location in Bogotá. The main branch, located in the G Zone of the city, is tucked away amidst restaurants, cafes, and bakeries. Here, you'll find an incredible variety of cookies that can be enjoyed with hot beverages like coffee or aromatic teas, as well as mouthwatering milkshakes for those with a sweet tooth. The milkshakes, like the cookies, showcase traditional Colombian flavors alongside creative options such as Lulada, arequipe with achiras, or red fruits with peanut butter and coffee-flavored arequipe. This place offers a charming setting to savor authentic Colombian flavors in a cozy and welcoming atmosphere.
+
+
+- **Hiking, Quebrada La Vieja**
+
+This is one of the closest options to the city where you can relax while listening to the sound of water running just a few meters away from the trail. The site is supervised, making it a very safe area for both short and long hikes.
+
+
+
+## A few hours from Bogota
+
+- **Villa de Leyva** Step back in time in this well-preserved colonial town, known for its cobblestone streets, whitewashed buildings, and charming main square.
+
+- **Guatavita Lake** Discover the legendary "El Dorado" at this beautiful lake, steeped in indigenous mythology and surrounded by lush landscapes.
+
+- **Coffee Haciendas in Fusagasugá** Visit a coffee plantation in the picturesque countryside, learn about the coffee-making process, and savor freshly brewed Colombian coffee.
+
+- **Pueblito Boyacense** 
+ Located in Duitama (Boyacá), is a cultural and gastronomic showcase near Bogotá. This charming village features over 100 houses replicating the architecture of municipalities like Villa de Leyva, Ráquira, and Tibasosa. Visitors can enjoy the typical cuisine of the region, explore local cafes, and partake in romantic experiences.
+
+- **La Chorrera de Choachí** 
+Located in the municipality of Choachí, the La Chorrera Adventure Park is home to two of Colombia's tallest waterfalls, El Chiflón and La Chorrera. La Chorrera stands at an impressive height of 590 meters, making it one of the country's highest waterfalls. The 55-meter high El Chiflón offers exciting opportunities for adventure sports. This weekend, consider visiting this park near Bogotá for an unforgettable experience.
+
