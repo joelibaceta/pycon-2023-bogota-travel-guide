@@ -115,7 +115,9 @@ A place founded four years ago and is about to open its third location in Bogot�
 
 This is one of the closest options to the city where you can relax while listening to the sound of water running just a few meters away from the trail. The site is supervised, making it a very safe area for both short and long hikes.
 
+- **Tranvia de Bogota**
 
+Explore the heart of Bogotá aboard a historic tram that takes you on a captivating journey through the city's history. This recommended weekend activity offers an immersive experience for both adults and children. Created by historians Luis Felipe González and Nicólas Pineda, the tram initiative aims to revive love for the city's past. With various routes and fares available, you can visit iconic landmarks such as the San Francisco River waterfalls and Chorro de Quevedo. Along the way, engaging characters bring the history to life, ensuring an entertaining and educational tour. Don't miss the opportunity to uncover hidden gems and experience the charm of old Bogotá.
 
 ## A few hours from Bogota
 
